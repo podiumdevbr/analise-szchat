@@ -1,1 +1,1 @@
-# Análise do SZ Chat - Eleiç~]oes 2026
+# Análise do SZ Chat - Eleições 2026
